@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @wizard-computer-tower
 - 👀 I’m interested in evil wizards
-- 🌱 I’m currently learning
+- 🌱 I’m currently learning secret wizard things, you wouldn't get it
 - 💞️ I’m looking to collaborate on mayhem and destruction
 - 📫 How to reach me: shout into a tree with a hole in it and I'll hear you. I won't respond, but I'll hear you
 
